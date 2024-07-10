@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @1lwanja
 - 📚 I'm constantly learning new skills and striving for progress
-🏆 Goal: Be the person I needed when I was younger
+
 ⚡ Motto: Keep striving for progress, not perfection
 
 
